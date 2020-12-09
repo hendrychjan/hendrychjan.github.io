@@ -1,1 +1,0 @@
-# hendrychjan.github.io
